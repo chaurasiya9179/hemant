@@ -1,5 +1,5 @@
 
-# Hi 👋, I'm Hemant Kumar chaurasiya
+# Hi 👋, I'm Hemant Kumar Chaurasiya
 
 A passionate learner exploring the world of technology.
 
